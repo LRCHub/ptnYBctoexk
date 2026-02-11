@@ -1,4 +1,4 @@
-# 米津玄師 – 馬と鹿
+# Kenshi Yonezu – 馬と鹿 - Uma to Shika
 
 > **歌詞登録ステータス：同期歌詞あり**
 
